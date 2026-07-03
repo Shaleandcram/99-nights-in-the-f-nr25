@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Shaleandcram.github.io/99-nights-in-the-f-nr25/ ) |
  |---------------------|----------------------:|
 
 
