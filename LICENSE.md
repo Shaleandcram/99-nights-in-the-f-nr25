@@ -1,4 +1,4 @@
-#  
+#  99 nights in the forest Scripts automatic is the best 99 nights in the forest Script, featuring no cooldown and auto-farm. Safe and powerful for all
 
 
 
